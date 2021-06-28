@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GaborKerenyi
 - 👀 I’m interested in piano music.
-- 🌱 I’m currently learning Nocturnes of chopin.
+- 🌱 I’m currently learning Nocturnes of Chopin.
 - 💞️ I’m looking to collaborate on future internet.
 - 📫 How to reach me gabirkerenyidr@gmail.com
 
